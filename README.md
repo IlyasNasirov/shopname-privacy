@@ -1,0 +1,1 @@
+# shopname-privacy
